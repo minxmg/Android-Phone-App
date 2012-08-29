@@ -8,3 +8,7 @@ This is JaeKwang2>>>>>>> .r9
 
 This is confusing...
 More stuffs~~~~
+
+
+
+Getting use to it...
